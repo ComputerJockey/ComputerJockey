@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ComputerJockey
+- 👀 I’m interested in a codin, web-development or similar remote job.
+- 🌱 I’m currently learning in Caracas, Venezuela.
+- 💞️ I speak English and Spanish.
+- 📫 David2021beta@gmail.com
